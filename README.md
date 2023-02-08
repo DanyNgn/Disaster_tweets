@@ -12,4 +12,4 @@ Mais, il n'est pas toujours clair si les mots d'une personne annoncent réelleme
 Dany Nguyen : dany.nguyen1997@gmail.com
 
 ## Présentation vidéo du projet :
-En attente...
+https://share.vidyard.com/watch/d6cUo75BSzphD4mcsD3TeP?
